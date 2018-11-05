@@ -2,3 +2,4 @@
 fdjbdhh
 gnxıfgjh
 dön artık
+akın yazıyor
